@@ -15,3 +15,9 @@
     ⍴ᥣs іᥒ𝗍 ᥕ mᥱ і ᥲm ᥣᥲᥴkіᥒg 𝖿rіᥱᥒძs (´-ι_-｀) . . . 🎞
     
 ＊┈┈┈┈＊┈┈┈┈＊┈┈┈┈＊┈┈┈┈＊┈┈┈┈＊┈┈┈┈＊┈┈┈┈＊┈┈┈┈＊┈┈┈┈
+
+ok here r the serious bits in my intro.. 
+
+I am a very young person so pls dont be weird around me ( unless we r the same age ig ). I say alot of stuff when we r friens ( like stuff that happened to me or useless crap ) so pls if I am starting to get on ur nerves pls tell me !! •́︿•̀ I can sometimes be very egoistic so yeah (๑•́︿•̀๑). I can sometimes forget to use tone tags whenever I'm making jokes so pls don't take anything I say seriously. oh and also pls respect MY opinions on stuff bc I HATE HATE HATE arguments
+
+ok that's it for now !! ^^ I hope we'd get along ! ❀‎ܓ(｡◠ ꇴ ◠｡ )
